@@ -7,3 +7,4 @@ https://www.harborfreight.com/search?q=oxygen%20sensor%20socket
 https://www.harborfreight.com/search?q=oxygen%20sensor%20sockets
 
 # Set:
+https://www.harborfreight.com/oxygen-sensor-and-diesel-injection-socket-set-99850.html
