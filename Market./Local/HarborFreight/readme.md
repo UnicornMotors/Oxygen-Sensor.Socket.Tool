@@ -1,1 +1,2 @@
-
+- https://www.harborfreight.com/78-in-oxygen-sensor-socket-63702.html
+- https://www.harborfreight.com/3-8-eighth-inch-offset-oxygen-sensor-wrench-97177.html
